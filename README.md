@@ -1,2 +1,2 @@
 ### SAP-Certified-Application-Associate-Employee-Central
-SAP SuccessFactors Employee Central Certificate 
+Click on PDF doc to see the certificate 
