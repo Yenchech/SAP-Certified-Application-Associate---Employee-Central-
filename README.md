@@ -1,2 +1,2 @@
-### SAP-Certified-Application-Associate-Employee-Central
-Click on PDF doc to see the certificate 
+### SAP-Certified-Application Associate Certificates 
+Click on respective PDF doc to see the certificate for respective module 
